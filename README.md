@@ -3,6 +3,7 @@
 away : AFK, do whisper so i can see what you said when i come back ( local chat tends to overwrite stuff )
 
 **ponytown statuses below**
+
 do not disturb : offtab / not focused on ponytown
 
 online : feel free 2 int~~~~~~~~~~~~~~~~~~ 
