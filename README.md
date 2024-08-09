@@ -1,6 +1,6 @@
 ![gambar](https://github.com/user-attachments/assets/f9170995-caab-4ca0-86a3-d7db03939e30) WIP... more info abt me in strawpage ( not guaranteed to be readable in phone )
 
-away : AFK
+away : AFK, do whisper so i can see what you said when i come back ( local chat tends to overwrite stuff )
 
 do not disturb : offtab / not focused on ponytown
 
