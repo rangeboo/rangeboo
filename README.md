@@ -11,3 +11,4 @@ online : feel free 2 int~~~~~~~~~~~~~~~~~~
 ![gambar](https://github.com/user-attachments/assets/d52f4684-4012-498a-8561-98991715efc8)
 
 proud 1 pity aventurine ( who also happens to be my 2 or 3rd 5-star ever ) owner
+BY THE WAY!!! https://rangeboosgraveyard.straw.page/ is my OLD strawpage i cant access gimmicks of !! :(
